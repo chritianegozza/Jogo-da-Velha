@@ -22,7 +22,7 @@ BOOTCAMP da [DIO](https://dio.me/sign-up?ref=Y02E17JPS5)
 
 ✅ Javascript
 **********************************************************
-# 🤝🏼 Caso você queria alguma ajuda, pode conta comigo. 
+ 🤝🏼 Caso você queria alguma ajuda, pode conta comigo. 
 
 
 **********************************************************
